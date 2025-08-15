@@ -1,1 +1,1 @@
-Music inspiration
+Music inspiration.
